@@ -28,5 +28,4 @@
 8. Nota: Para una receta de 10 personas, utiliza la mitad de las porciones en los ingredientes.
 #### Referencias:
 https://www.sabrosia.pr/recetas/2020/11/02/hazla-ya-tradicional-ensalada-papas-tus-fiestas.html/
-##### Videos:
 https://youtu.be/WEC-zVA1Ar4
