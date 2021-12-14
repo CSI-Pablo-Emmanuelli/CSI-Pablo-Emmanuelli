@@ -26,6 +26,9 @@
 6. Añade mayonesa, sal y cilantro. Combina todo.
 7. Finalmente, decora con pimientos rojos\
 8. Nota: Para una receta de 10 personas, utiliza la mitad de las porciones en los ingredientes.
+
+### Video:
+- https://youtu.be/WEC-zVA1Ar4
+
 #### Referencias:
 https://www.sabrosia.pr/recetas/2020/11/02/hazla-ya-tradicional-ensalada-papas-tus-fiestas.html/
-https://youtu.be/WEC-zVA1Ar4
